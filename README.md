@@ -12,6 +12,7 @@ I'm a girl, my sexuality is Bisexual-Demiromantic.
 Dont be afraid to interact, i have too much love to give.
 _______________
 MY BABIESSSSSSSSSS
-![IMG_3261](https://github.com/user-attachments/assets/e5c34d82-a4a1-4e22-92f0-8dcbcdfcaa3f)
-![IMG_3257](https://github.com/user-attachments/assets/2eae3b7c-bb18-4f14-a184-c09465d0945f)
-![IMG_3254](https://github.com/user-attachments/assets/8ac32936-788b-4b10-ac83-8b1f4c1537c4)
+![IMG_3484](https://github.com/user-attachments/assets/35dc5a66-0736-4a0b-914c-c988854ff013)
+![IMG_3483](https://github.com/user-attachments/assets/373d5fb4-be1b-4eec-a033-2cb1b64aba67)
+![IMG_3485](https://github.com/user-attachments/assets/1f13db81-346a-48ad-98d4-ebb0bfd46d75)
+
