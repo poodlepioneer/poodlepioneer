@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=poodlepioneer&color=#52463a)
+
 Hihi, im Vale.
 
 
