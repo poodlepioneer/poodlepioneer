@@ -3,13 +3,7 @@
 Hihi, im Vale.
 
 
-My birthdays NOV 19.
-
-
-I'm a girl, my sexuality is Bisexual-Demiromantic.
-
-
-Dont be afraid to interact, i have too much love to give.
+read my [rentry](https://rentry.co/dr3am1and) for more info abt me.
 _______________
 MY BABIESSSSSSSSSS
 ![IMG_3484](https://github.com/user-attachments/assets/35dc5a66-0736-4a0b-914c-c988854ff013)
